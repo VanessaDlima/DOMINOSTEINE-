@@ -1,0 +1,12 @@
+# How to make Dominostein, a german-dessert?
+<p style="color:black;">1. Preheat the oven to 350˚F (180°C). Prepare an adjustable baking frame (7.8×11.8 inch) with baking parchment. For the gingerbread dough add the <p><p style="color:red;>">honey, sugar and butter to a saucepan and bring to a boil. Let cool down a bit. Chop the chocolate, add to the honey mix and stir. In a large bowl sift flour, gingerbread spice, baking powder and <p><p style="color:gold;">salt. Add the honey-chocolate mix and egg and mix until all is well combined. Transfer the dough immediately to the baking frame and smooth out the surface. Bake for 12-15 minutes. Let cool in the frame.<p>
+
+<p style="color:black;">2. For the jelly let the gelatine leaves soak in water. In a small saucepan add quince jelly and lemon juice<p><p style="color:red;"> and bring to a boil, stir constantly. Squeeze the gelatine to remove water, add to the jelly and let dissolve complete<p style="color:gold;">ly. Let cool down a bit (if it’s too liquid, it will probably spill out of the frame) – pour on the gingerbread and let harden in the fridge over night.<p>
+
+<p style="color:black;">3. Chop the walnuts finely in a mixer. Roast the nuts in a non-stick pan until fragrant – don’t burn them. L<p><p style="color:red;">et cool down. Grate the marzipan coarsely (if you freeze it for some time in advance, this will work better). Mix walnuts, marzipan and rum until you get a nice s<p><p style="color:gold;">mooth dough-like mixture (it is a bit sticky). Place on plastic wrap and roll out a rectangle (7.8×11.8 inch). Place on the jelly layer and remove the plastic wrap. Remove the frame.<p>
+
+<p style="color:black;">4. Chop the chocolate coating and add to a heatproof bowl. Place on a saucepan with simmering water to melt the chocolate – the temperature of t<p><p style="color:red;">he chocolate should not get higher than 98°F. Cut the cake into 40 cubes (1.2×1.2 inch). Immerse the cubes in t<p><p style="color:gold;">he melted chocolate coating (or place on a fork and let the chocolate run over the cubes) – allow excess chocolate to drip off and then place on a baking sheet prepared with baking parchment to dry.<p>
+
+<p style="color:black;">5. Melt the white chocolate coating over simmering water a<p><p style="color:red;">nd fill in a small piping bag. Decorate the dom<p><p style="color:gold;">ino cubes. Store in a tin box in a cool place up to one week.<p>
+
+
